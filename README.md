@@ -6,15 +6,15 @@ NOMBRE DEL GRUPO: Grupo F
 
 INTEGRANTES: Nivela Pilozo Vanessa
 
-Pilalo Pilalo
+Pilalo Pilalo Lissette
 
-Gonzales
+Bajaña Romero Yaritza
 
-Soriano
+Gonzales Rugel Carlos
 
-Bajaña 
+Soriano Barzola Annette
 
-Villamar
+Villamar Ruiz Presely
 
 INTRODUCCION DEL PROYECTO
 
