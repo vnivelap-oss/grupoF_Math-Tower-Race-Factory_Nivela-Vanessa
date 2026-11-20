@@ -14,7 +14,7 @@ Gonzales Rugel Carlos
 
 Soriano Barzola Annette
 
-Villamar Ruiz Presely
+Villamar Ruiz Presly
 
 INTRODUCCION DEL PROYECTO
 
